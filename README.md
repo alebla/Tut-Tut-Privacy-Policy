@@ -1,4 +1,4 @@
-# TutTutPrivacyPolicy
+# Tut Tut Privacy Policy & Contact Info
 
 Hello and thank you checking out Tut Tut! 
 
